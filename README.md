@@ -1,4 +1,4 @@
-👋 Hi, I’m @Sayidrahmatulloh
+👋 Hi, I’m Sayidrahmatulloh
 
 
 ## ⚡ Technologies
